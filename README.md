@@ -1,4 +1,4 @@
-[![Typing SVG](https://readme-typing-svg.demolab.com/?lines=First+line+of+text;Second+line+of+text)](https://git.io/typing-svg)# github stuff !
+[![Typing SVG](https://readme-typing-svg.demolab.com/?lines=github+stuff;Second+line+of+text)](https://git.io/typing-svg)*# github stuff !
 
 
 mike / red + _he they_
@@ -10,7 +10,7 @@ mike / red + _he they_
 -----
 
 
-[![Typing SVG](https://readme-typing-svg.demolab.com/?lines=First+line+of+text;Second+line+of+text)](https://git.io/typing-svg)## __interests__
+[![Typing SVG](https://readme-typing-svg.demolab.com/?lines=interests;Second+line+of+text)](https://git.io/typing-svg)## __interests__
 
 **pokepasta , pogosor , from gold to silver , creepypasta , tmc = the mandela catalog , fnaf , pokemon in general , resarching things, animals, tapestrys, soccer/futbol, chemical reactions/chemestry, + taxidermy & music bands**
 
