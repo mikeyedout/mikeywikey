@@ -1,4 +1,4 @@
-[![Typing SVG](https://readme-typing-svg.demolab.com/?lines=github+stuff;github+stuff)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=comic+sans&weight=200&pause=1000&color=F70A0A&background=FFFFFF00&width=435&lines=github+stuff..%3F)](https://git.io/typing-svg)
 
 
 mike / red + _he they_
@@ -10,14 +10,14 @@ mike / red + _he they_
 -----
 
 
-[![Typing SVG](https://readme-typing-svg.demolab.com/?lines=interests;interests)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=comic+sans&pause=1000&color=F70A0A&background=FFFFFF00&width=435&lines=interests!)](https://git.io/typing-svg)
 
 **pokepasta , pogosor , from gold to silver , creepypasta , tmc = the mandela catalog , fnaf , pokemon in general , resarching things, animals, tapestrys, soccer/futbol, chemical reactions/chemestry, + taxidermy & music bands**
 
 .. __i also really enjoy destroy boys, fear factory, pinkshift, deftones, lizzo, the living tombstone, the dredson dolls, mommy long legs + nine inch nails__!! (music wise)
 ___
 
-[![Typing SVG](https://readme-typing-svg.demolab.com/?lines=about+me;about+me)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=comic+sans&pause=1000&color=F70A0A&background=FFFFFF00&width=435&lines=about+me!!+mike!!)](https://git.io/typing-svg)
 
 i develop games and i code , i 3d model + i also draw a bunch. feel free to ask me about comms as they are open literally 24/7
 
@@ -27,7 +27,7 @@ i develop games and i code , i 3d model + i also draw a bunch. feel free to ask 
 
 
 ___
-[![Typing SVG](https://readme-typing-svg.demolab.com/?lines=ponytown+shit;ponytown+shit)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=comic+sans&weight=200&pause=1000&color=F7E652&background=FFFFFF00&width=435&lines=ponytown!!!)](https://git.io/typing-svg)
 
 whisper me if you wanna be friends, i enjoy making friends. esp people i can relate too
 
