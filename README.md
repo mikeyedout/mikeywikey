@@ -14,10 +14,11 @@ mike / red + _he they_
 
 **pokepasta , pogosor , from gold to silver , creepypasta , tmc = the mandela catalog , fnaf , pokemon in general , resarching things, animals, tapestrys, soccer/futbol, chemical reactions/chemestry, + taxidermy & music bands**
 
-__i also really enjoy destroy boys, fear factory, pinkshift, deftones, lizzo, the living tombstone, the dredson dolls, mommy long legs + nine inch nails__!! (music wise)
+.. __i also really enjoy destroy boys, fear factory, pinkshift, deftones, lizzo, the living tombstone, the dredson dolls, mommy long legs + nine inch nails__!! (music wise)
 ___
 
 [![Typing SVG](https://readme-typing-svg.demolab.com/?lines=about+me;about+me)](https://git.io/typing-svg)
+
 i develop games and i code , i 3d model + i also draw a bunch. feel free to ask me about comms as they are open literally 24/7
 
 
