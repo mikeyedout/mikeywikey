@@ -27,7 +27,8 @@ i develop games and i code , i 3d model + i also draw a bunch. feel free to ask 
 
 
 ___
-[![Typing SVG](https://readme-typing-svg.demolab.com/?lines=ponytown+shit;ponytown+shit)](https://git.io/typing-svg)## __ponytown shit__
+[![Typing SVG](https://readme-typing-svg.demolab.com/?lines=ponytown+shit;ponytown+shit)](https://git.io/typing-svg)
+
 whisper me if you wanna be friends, i enjoy making friends. esp people i can relate too
 
 dont intentionally cover me it pisses me off beyond belief and i cannot believe i have to say that. its not hard to not cover up people on a VIRTUAL pony-game. and this can also go both ways, i could move too. but if i was sitting there BEFORE you.. you should move. okay? Ok.
